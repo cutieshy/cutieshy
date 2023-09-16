@@ -1,16 +1,14 @@
-### Hi there 👋
-
-<!--
-**cutieshy/cutieshy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
+![cream spin](https://github.com/cutieshy/cutieshy/assets/23288851/b7b6106b-97a2-4fa1-8e87-1738ffec6517)
